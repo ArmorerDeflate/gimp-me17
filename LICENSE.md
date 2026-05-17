@@ -1,4 +1,4 @@
-# 
+# premium Adobe Photoshop para PC ferramentas é o melhor Adobe Photoshop para PC ferramentas com pranchas de arte e simulação de fumaça. Seguro, confiável e otimizado para máximo
 
 
 
